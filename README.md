@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ShineBulate 
+- 👋 Hi, I’m @Bulat nice to meet you!
 - 👀 I’m interested in  Memes, Asian culture Japan, Korea, China
 - 🌱 I’m currently learning Js,PHP,Python
 - 💞️ I’m looking to collaborate on Someone please?
