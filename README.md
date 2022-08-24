@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Bulat nice to meet you!
 - 👀 I’m interested in Memes, Asian culture Japan, Korea, China
-- 🌱 I’m currently improve my skill in Js (Node JS) ,PHP,MYSQL,JAVA.
+- 🌱 I’m currently improve my skills in Js (Node JS) ,PHP,MYSQL,JAVA.
 - 💞️ I’m looking to collaborate on Someone please?
 - 📫 How to reach me 
 -  
