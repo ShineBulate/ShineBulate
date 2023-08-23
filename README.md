@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Bulat nice to meet you!
 - 👀 I’m interested in work
-- 🌱 I’m currently a gamedeveloper
+- 🌱 I’m currently try to do something as gamedeveloper
 - 💞️ I’m looking to collaborate with Someone please?
 - 📫 How to reach me @Shinohara43 in Telegram or shinohara43@icloud.com
 <!---
